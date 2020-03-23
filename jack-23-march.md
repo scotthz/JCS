@@ -23,8 +23,7 @@
 
   * [ ] [Daily instrument practice](https://classroom.google.com/u/2/c/NDAzNzk1MTcxNDFa/a/NjQ4MzQyNzI2MDla/details) and confirm online today.
   * [ ] [Candide Overture Form](https://classroom.google.com/u/2/c/NDAzNzk1MTcxNDFa/a/NjQ3ODU5ODQyMjVa/details). Due tomorrow.
-      >write 100 words about your thoughts on the form/content of this piece
-  * [ ] 
+      >write 100 words about your thoughts on the form/content of this piece.
 
 #### Government
 
